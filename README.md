@@ -7,11 +7,11 @@
 
 
  
-  　　　　 　　  [Strawpage](https://fushiquro.straw.page/) 
+  　　　　 　　  [Strawpage](https://fushiquro.straw.page/) . .
 
         
      
- 　　   　　 　 　　  🕳️
+ 　　   　　 　 　　  🖤🕳️
              
 <img width="270" src="https://github.com/user-attachments/assets/112d5935-6899-4661-a7f3-464586dd400c" />
 <br clear="left"/>
