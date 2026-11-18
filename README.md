@@ -7,7 +7,7 @@
 
 
  
-  　　　　 　　 . . [Sp](https://fushiquro.straw.page/) [Rntry](https://rentry.co/mcgumi). .
+  　　　　 　　 . . [Sp](https://fushiquro.straw.page/) & [Rntry](https://rentry.co/mcgumi). .
 
         
      
