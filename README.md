@@ -7,7 +7,7 @@
 
 
  
-  　　　　 　　  [Strawpage](https://fushiquro.straw.page/) . .
+  　　　　 　　 . . [Strawpage](https://fushiquro.straw.page/) . .
 
         
      
