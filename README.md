@@ -7,7 +7,7 @@
 
 
  
-  　　　　 　　 . . [Strawpage](https://fushiquro.straw.page/) . .
+  　　　　 　　 . . [Sp](https://fushiquro.straw.page/) [Rntry](https://rentry.co/mcgumi). .
 
         
      
